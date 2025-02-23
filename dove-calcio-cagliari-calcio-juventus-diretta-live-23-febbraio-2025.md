@@ -5,7 +5,7 @@ Come guardare la partita di Serie A tra Cagliari e Juventus, nonché l'orario di
 
 🆆🅰🆃🅲🅷🔴▶️ CLICK HERE TO LIVE STREAM](https://livesportstvhd.com/serie-a-live/)
 
-🅻🅸🆅🅴🔴▶️ CLICK HERE TO WATCH LIVE ONLINE)](https://livesportstvhd.com/serie-a-live/)](https://all-evvnts-acess-today.blogspot.com/)
+🅻🅸🆅🅴🔴▶️ CLICK HERE TO WATCH LIVE ONLINE)](https://livesportstvhd.com/serie-a-live/)
 
 
 
